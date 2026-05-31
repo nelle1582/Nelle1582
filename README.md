@@ -1,6 +1,6 @@
 # Hi, I'm Danielle 👋
 
-I'm an Executive Assistant and Operations Professional with a passion for AI, automation, and process improvement.
+I'm an Executive Operations Leader and Executive Assistant with a passion for AI, automation, and process improvement.
 
 Over the past several years I've supported executives and leadership teams by building systems that improve efficiency, streamline communication, and help organizations scale.
 
